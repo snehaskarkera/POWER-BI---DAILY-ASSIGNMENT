@@ -1,2 +1,2 @@
-# POWER-BI---DAILY-ASSIGNMENT
+# Power Bi - Daily Assignment
 snehakarkera27@gmail.com
